@@ -1,4 +1,4 @@
-
+Enhance Alfred for macOS with Alfred for macOS secure Integration: AI assistant & real-time editing, the #1 integration. Includes AI assistant and real-time editing for a smoother
 
 
 
